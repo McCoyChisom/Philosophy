@@ -1,2 +1,2 @@
 # Philosophy
-A phrase that summarizes my career/professional accent
+Every bit counts.
